@@ -13,6 +13,8 @@
 - im **17**. nyeeeh however i uh, went through difficult experiences b4 and i left them already, so currently trying to heal from it! sirgil is internally complex.. :oT  
   **anyone under 13 please iwec or just dni ok!!**
 
+- if *ex-friends*, DNI. yk who u are.
+
 - im **bilingual**, but my eng is oke. most of the time i purposefully make broken grammars / some word references (mostly YTP hehe) / random nonsense / spelling mistakes cuz either jm typing 2 fast lol
 
 - yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, i dont mind doubles but pls dont say like:
