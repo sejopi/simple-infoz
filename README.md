@@ -1,3 +1,5 @@
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/mephiles%20foofs.gif" width="800" height="600"></img></a>
+
 # hai :o)
 
 - i can be called **sejopi**, **sirgil**, or by my kin names, especially **mephiles**!
@@ -45,6 +47,9 @@
 
 - im pretty competitive ahahah uhm just avoid saying **"im no.1 X's fan of all time"** etc, pls i dont care;o(
 
+***
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/mephs.gif" width="800" height="600"></img></a>
+
 ## pony town info! :o3
 
 - **c/h** are **encouraged**!! i dont have DNT stuff leik dat. (eh unless u make weird or suggestive body gestures at me, ill hide you perm for making me uncomfortable)
@@ -60,6 +65,10 @@
 - uh when afk i ABSOLUTELY do not intend to feed my playtime reaching 69,00000 fucking hours or days. W2i is alright whether I'm afk or not! mostly i sit alone just to **look at peoples unique skins** n **check prof displays** or simply **watching yt**, or possibly on **l4d2** :o)
 
 - if im just really **disturbed** i will just hide u permanently especially problematic ppl, stay away from me :o(
+
+***
+
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/tumblr-gif.gif" width="800" height="600"></img></a>
 
 ### my interests, or things that i rlly like! xo)
 
