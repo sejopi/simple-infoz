@@ -40,3 +40,19 @@
   **consult ur guardians or professional therapist at least if its something WAAAAAAY serious.**
 
 - im pretty competitive ahahah uhm just avoid saying **"im no.1 X's fan of all time"** etc, pls i dont care;o(
+
+## pony town info! :o3
+
+- **c/h** are **encouraged**!! i dont have DNT stuff leik dat. (eh unless u make weird or suggestive body gestures at me, ill hide you perm for making me uncomfortable)
+
+- tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
+
+- ILL NEVER go to the mcyt area or even the spot near it, uhm simply its a personal problem.
+
+- pls dont copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
+
+- i tolerate **crowns** & **compliments**! :oD
+
+- uh when afk i ABSOLUTELY do not intend to feed my playtime reaching 69,00000 fucking hours or days. W2i is alright whether I'm afk or not! mostly i sit alone just to **look at peoples unique skins** n **check prof displays** or simply **watching yt**, or possibly on **l4d2** :o)
+
+- if im just really **disturbed** i will just hide u permanently especially problematic ppl, stay away from me :o(
