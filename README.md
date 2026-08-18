@@ -4,7 +4,9 @@
 
 - im alright with nicknames if i tolerate some of them
 
-- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; however with my mephiles skin, **they/them**!
+- i DON'T CARE about character shipping at all so please dont shove it to my face unnecessarily
+
+- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin plz do use **they/them**.
 
 - im **demiromantic, asexual**.
 
@@ -56,3 +58,7 @@
 - uh when afk i ABSOLUTELY do not intend to feed my playtime reaching 69,00000 fucking hours or days. W2i is alright whether I'm afk or not! mostly i sit alone just to **look at peoples unique skins** n **check prof displays** or simply **watching yt**, or possibly on **l4d2** :o)
 
 - if im just really **disturbed** i will just hide u permanently especially problematic ppl, stay away from me :o(
+
+### my interests, or things that i rlly like! xo)
+
+- fries, milkshakes - slushies, mint chocolate chip icecream, seal plushies & trinkets, pinnipeds, drawing, **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STC series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds.
