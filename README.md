@@ -26,10 +26,12 @@
   
   yes ok i hear u but uhm just DNI kindly. :o(
 
-- while iim internally complex & hav my own issues, i rlly dont want to shove it to ur face all the tiem. **HOWEVER**, theres a heads up anyway, i can be:
+- while iim internally complex & hav my own issues, i rlly dont want to shove it to ur face all the tiem. **HOWEVER**, theres a heads up anywya, i can be:
   - selective when choosing a friend
   - jealousy / trust issues
   - rlly nervous
+  - self indulgent (no i dont mean by sleeping for hours more than i should etc)
+  - GETS BORED easily if small / mild discussion
   - i tend to freeze / withdraw / go silent when theres smth that reminds me of past experiences that is negative
   - gets silent if theres 3 or more ppl talking at once (id just walk away so i can be alone)
 
@@ -72,4 +74,4 @@
 
 ### my interests, or things that i rlly like! xo)
 
-- fries, milkshakes - slushies, mint chocolate chip icecream, seal plushies & trinkets, pinnipeds, drawing, **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STC series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds.
+- fries, milkshakes - slushies, mint chocolate chip icecream, seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, 
