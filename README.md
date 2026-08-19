@@ -26,14 +26,14 @@
   
   yes ok i hear u but uhm just DNI kindly. :o(
 
-- while iim internally complex & hav my own issues, i rlly dont want to shove it to ur face all the tiem. **HOWEVER**, theres a heads up anywya, i can be:
-  - selective when choosing a friend
+- while iim internally complex & hav my own issues, i rlly dont want to shove it to ur face all the tiem. **HOWEVER**, theres a heads up anywya but ill try to overcome them, i have:
+  - selectiveness when choosing a friend
   - jealousy / trust issues
   - rlly nervous
-  - self indulgent (no i dont mean by sleeping for hours more than i should etc)
+  - rlly self indulgent (no i dont mean by sleeping for hours more than i should etc)
   - GETS BORED easily if small / mild discussion
-  - i tend to freeze / withdraw / go silent when theres smth that reminds me of past experiences that is negative
-  - gets silent if theres 3 or more ppl talking at once (id just walk away so i can be alone)
+  - i tend to freeze / withdraw / go silent when theres smth that reminds me of past experiences badly
+  - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
 
 - UH i tend to write many things at once so youll be seeing **wall texts** from me
 
