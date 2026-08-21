@@ -6,6 +6,8 @@
 
 - im alright with nicknames if i tolerate some of them
 
+- NO im not listing any mental disorders becus im not diagnosed proeprly yet by the professionals but im aware **i have difficulties mentally and physically** due to many past experiences ive went through that left an impact on me so ofc im gonna set up some boundaries so that im comfortable! :o]
+
 - i DON'T CARE about character shipping at all so please dont shove it to my face unnecessarily
 
 - i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin plz do use **they/them**.
@@ -42,7 +44,7 @@
 - if we get close i might speak way more **emotionally expressive** n **spontaneous**!  
   Co: i dont use insults at all, even as a joke, i dont leik using it on friends!
 
-- i do like jokes or puns, especially dark humor, but uH i dont tolerate rAAR (r*pe) or **ANY** sexual jokes! it makes me uncomfortable.
+- i do like jokes or puns, especially dark humor, but uH i dont tolerate rAAR (r*pe) or **ANY** sexual jokes! it makes me uncomfortable , i also dont like using any hard slurs or hearing it; i do swear a lot anyway but never those slurs!
 
 - not good at comforting! i will listen, however. you can try approaching other ppl yk for... better comfort? ;oC whatever i say arent always helpful to ur vents!  
   **consult ur guardians or professional therapist at least if its something WAAAAAAY serious.**
