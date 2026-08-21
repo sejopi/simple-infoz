@@ -60,7 +60,7 @@
 
 - tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
 
-- ILL NEVER go to the mcyt area or even the spot near it, uhm simply its a personal problem.
+- ILL NEVER go to the mcyt area, uhm simply its a personal problem.
 
 - pls dont copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
 
