@@ -68,6 +68,8 @@
 
 - uh when afk i ABSOLUTELY do not intend to feed my playtime reaching 69,00000 fucking hours or days. W2i is alright whether I'm afk or not! mostly i sit alone just to **look at peoples unique skins** n **check prof displays** or simply **watching yt**, or possibly on **l4d2** :o)
 
+- for ***did/osdd people*** maybw **iwEc** but i certainly dont see you as weird or anything negative! i jst want to make sure we're all comfortable when int | *plus i never had osdd/did buds before* :oP ; if u dont wnat to int thats ok!
+
 - if im just really **disturbed** i will just hide u permanently especially problematic ppl, stay away from me :o(
 
 ***
