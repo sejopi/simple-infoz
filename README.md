@@ -52,7 +52,11 @@
 - im pretty competitive ahahah uhm just avoid saying **"im no.1 X's fan of all time"** etc, pls i dont care;o(
 
 ***
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/mephs.gif" width="800" height="600"></img></a>
+
+<p align="center">
+
+<img width="599" height="275" alt="mephilesss" src="https://github.com/user-attachments/assets/0b58da24-c546-4a5a-9bf4-adebe4b80ee2" />
+
 
 ## pony town info! :o3
 
