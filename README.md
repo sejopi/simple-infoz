@@ -28,14 +28,17 @@
   
   yes ok i hear u but uhm just DNI kindly. :o(
 
-- while iim internally complex & hav my own issues, i rlly dont want to shove it to ur face all the tiem. **HOWEVER**, theres a heads up anywya but ill try to overcome them, i have:
+- for someone whos so internally complex i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selectiveness when choosing a friend
+  - asocial
   - jealousy / trust issues
-  - rlly nervous
-  - rlly self indulgent (no i dont mean by sleeping for hours more than i should etc)
-  - GETS BORED easily if small / mild discussion
-  - i tend to freeze / withdraw / go silent when theres smth that reminds me of past experiences badly
+  - overthinking
+  - rlly nervous; paranoid
+  - rlly self indulgent
+  - GETS BORED easily if small / mild discussion; small talks
+  - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
   - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
+  - heavy preference for 1 on 1 talking rather than in groups srsly
 
 - UH i tend to write many things at once so youll be seeing **wall texts** from me
 
