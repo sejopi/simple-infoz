@@ -30,11 +30,11 @@
 
 - for someone whos so internally complex i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selectiveness when choosing a friend
-  - asocial
   - jealousy / trust issues
   - overthinking
   - rlly nervous; paranoid
-  - rlly self indulgent
+  - self indulgent
+  - self doubt
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
   - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
