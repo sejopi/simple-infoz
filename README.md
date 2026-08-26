@@ -38,7 +38,7 @@
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
   - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
-  - heavy preference for 1 on 1 talking rather than in groups srsly
+  - heavy preference for 1 on 1 talking rather than in groups seriously
 
 - UH i tend to write many things at once so youll be seeing **wall texts** from me
 
