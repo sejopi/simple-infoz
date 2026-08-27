@@ -14,7 +14,7 @@
 
 - im **demiromantic, asexual**.
 
-- im **17**. nyeeeh however i uh, went through difficult experiences b4 and i left them already, so currently trying to heal from it! sirgil is internally complex.. :oT  
+- im **17** and was traumatized early childhood and i try to forget any of the shitty past experiences already, so currently trying to heal from it! sirgil is internally complex.. :oT  
   **anyone under 13 please iwec or just dni ok!!**
 
 - if *ex-friends*, DNI. yk who u are; along with whoever associated with them.
