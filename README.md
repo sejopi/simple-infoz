@@ -6,11 +6,11 @@
 
 - im alright with nicknames if i tolerate some of them
 
-- NO im not listing any mental disorders becus im not diagnosed proeprly yet by the professionals but im aware **i have difficulties mentally and physically** due to many past experiences ive went through that left an impact on me so ofc im gonna set up some boundaries so that im comfortable! :o]
+- yes im mentally difficult but i dont have proper diagnosis on mental illnesses from the professionals yet. 
 
 - i DON'T CARE about character shipping at all so please dont shove it to my face unnecessarily
 
-- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin plz do use **they/them**.
+- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin plz do use im fine with **he/him** or **they/them**
 
 - im **demiromantic, asexual**.
 
@@ -30,6 +30,7 @@
 
 - for someone whos so internally complex i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selectiveness when choosing a friend
+  - needing constant reassurance (*it helps me. i appreciate it if you do for multiple times*)
   - jealousy / trust issues
   - overthinking
   - rlly nervous; paranoid
@@ -38,14 +39,14 @@
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
   - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
-  - heavy preference for 1 on 1 talking rather than in groups srsly it takes me like several minutes to decide if i should be alone or int with many people though unless youre a friend, i will try.
+  - heavy preference for 1 on 1 talking rather than in groups srsly **it takes me like several minutes to decide** if i should be alone or int with many people though **unless youre a friend**, i will try.
 
-- UH i tend to write many things at once so youll be seeing **wall texts** from me
+- UH i tend to write many things at once so youll be seeing **wall of texts** from me
 
 - if i dont feel like rlly interacting or even talking a little, i will only be silent n just sit alone to isolate despite being around people
 
 - if we get close i might speak way more **emotionally expressive** n **spontaneous**!  
-  Co: i dont use insults at all, even as a joke, i dont leik using it on friends!
+  Co: i dont use insults at all, even as a joke, i dont leik using it on friends! i crave attention but i dont like forcing.
 
 - i do like jokes or puns, especially dark humor, but uH i dont tolerate rAAR (r*pe) or **ANY** sexual jokes! it makes me uncomfortable , i also dont like using any hard slurs or hearing it; i do swear a lot anyway but never those slurs!
 
