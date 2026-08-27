@@ -10,7 +10,7 @@
 
 - i DON'T CARE about character shipping at all so please dont shove it to my face unnecessarily
 
-- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin plz do use im fine with **he/him** or **they/them**
+- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**
 
 - im **demiromantic, asexual**.
 
