@@ -8,7 +8,7 @@
 
 - yes im mentally difficult but i dont have proper diagnosis on mental illnesses from the professionals yet. 
 
-- i don't rlly care about characters shipping nor do i hate them (*if youre using Infinite or Silver skin do c/h with me PLZ; WITH platonic reasons ofc*)
+- i don't rlly care about characters shipping nor do i hate them (*if youre using Mephiles , Infinite or Silver skin do c/h with me PLZ; WITH platonic reasons ofc*)
 
 - i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**
 
@@ -21,7 +21,7 @@
 
 - im **bilingual**, but my eng is oke. most of the time i purposefully make broken grammars / some word references (mostly YTP hehe) / random nonsense / spelling mistakes cuz either jm typing 2 fast lol
 
-- yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, i dont mind doubles but pls dont say like:
+- yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, i dont mind doubles at all!! but pls dont say like:
   - **"im his no.1 fan"**
   - **"mephiles is a villain u cant fictkin him"**
   - **"im X more than u"**
