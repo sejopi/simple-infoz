@@ -64,7 +64,7 @@
 
 ## pony town info! :o3
 
-- **c/h** are **encouraged**!! i dont have DNT stuff leik dat. (eh unless u make weird or suggestive body gestures at me, ill hide you perm for making me uncomfortable)
+- **c/h** and **interacting**, **headrub** or **friendly kisses** are **encouraged**!! i dont have DNT stuff leik dat. (eh unless u make weird or suggestive body gestures at me, ill hide you for making me uncomfortable)
 
 - tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
 
