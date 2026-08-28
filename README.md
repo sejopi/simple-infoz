@@ -8,7 +8,7 @@
 
 - yes im mentally difficult but i dont have proper diagnosis on mental illnesses from the professionals yet. 
 
-- i DON'T CARE about character shipping at all so please dont shove it to my face unnecessarily
+- i don't rlly care about characters shipping nor do i hate them (*if youre using Infinite or Silver skin do c/h with me PLZ; WITH platonic reasons ofc*)
 
 - i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**
 
@@ -55,6 +55,8 @@
 
 - im pretty competitive ahahah uhm just avoid saying **"im no.1 X's fan of all time"** etc, pls i dont care;o(
 
+- i **strongly** dont like *bullying* including in anyway it can be shown even if as a joke
+
 ***
 
 <p align="center">
@@ -68,9 +70,9 @@
 
 - tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
 
-- ILL NEVER go to the mcyt area, uhm simply its a personal problem.
+- ILL NEVER go to the mcyt area personally 
 
-- pls dont copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
+- pls dont colorpicking / copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
 
 - i tolerate **crowns** & **compliments**! :oD
 
@@ -84,6 +86,6 @@
 
 <p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/tumblr-gif.gif" width="800" height="600"></img></a>
 
-### my interests, or things that i rlly like! xo)
+### my interests, or something/someone that i rlly like! xo)
 
-- **MEPHILESMEPHILESMPEHILESTHEDAKR MEPHILES!!!!11!!** ,  **hwoarang**<333, guido & rossum, copper wishling, coryxkenshin, kubzscouts, cs188, vo memes, fries; or any fried potaotes luul, milkshakes - slushies, mint chocolate chip icecream, seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;oD
+- **MEPHILESMEPHILESMPEHILESTHEDAKR MEPHILES!!!!11!!** ,  **hwoarang**<333, guido & rossum, steve fox, bryan fury, copper wishling, coryxkenshin, kubzscouts, cs188, vo memes, fries; or any fried potaotes luul, milkshakes - slushies, mint chocolate chip icecream, seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;o)
