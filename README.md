@@ -30,8 +30,8 @@
 
 - for someone whos so internally complex i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selectiveness when choosing a friend
-  - needing constant reassurance (*it helps me. i appreciate it if you do for multiple times*)
   - jealousy / trust issues
+  - anxious attachment style (it hurts FUUUUCK)
   - overthinking
   - rlly nervous; paranoid
   - self indulgent
