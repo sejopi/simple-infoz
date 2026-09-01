@@ -8,7 +8,7 @@
 
 - yes im mentally difficult but i dont have proper diagnosis on mental illnesses from the professionals yet. 
 
-- i don't rlly care about characters shipping nor do i hate them (*if youre using Mephiles , Infinite or Silver skin do c/h with me PLZ; WITH platonic reasons ofc*)
+- i don't rlly care about characters shipping at all nor do i hate them
 
 - i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**
 
