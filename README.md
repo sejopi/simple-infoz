@@ -21,7 +21,7 @@
 
 - im **bilingual**, but my eng is oke. most of the time i purposefully make broken grammars / some word references (mostly YTP hehe) / random nonsense / spelling mistakes cuz either jm typing 2 fast lol
 
-- yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, i dont mind doubles at all!! but pls dont say like:
+- yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, iwc; but pls dont say smth to me like:
   - **"im his no.1 fan"**
   - **"mephiles is a villain u cant fictkin him"**
   - **"im X more than u"**
